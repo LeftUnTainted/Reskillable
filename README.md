@@ -13,34 +13,3 @@ That'd be awesome! Send us a link so we can check it out!
 
 **Modpack:**
 Yes, this means you can use it in your modpack, video, let's play, server, etc, don't bother asking!
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-Edit is to prank friends.
-Edi
